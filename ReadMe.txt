@@ -1,0 +1,1 @@
+This blogging website is used for the Jio users to stay updated with the new offers and by posting their queries and getting them sloved
